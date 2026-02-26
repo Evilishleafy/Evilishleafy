@@ -16,8 +16,7 @@ feel mega free to int!! im cool, ur cool, we cool. Sorry if I'm afk tho😢
 
  multishipper ✨ love alastor, luci and adam ships🤑🤑
 
-![image](https://github.com/user-attachments/assets/cd782596-540a-4fd4-8d18-e4eb060b8762) dni incest shippers idk
-and alastor whitewashers (dniuid??)😢😢😢 
-yall my biggest opp
+![image](https://github.com/user-attachments/assets/cd782596-540a-4fd4-8d18-e4eb060b8762) 
+dnis are the ummmm
 
 
